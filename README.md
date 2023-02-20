@@ -8,4 +8,4 @@ I am a student who is interested in web development and music.
 
 * 🌍  I'm based in Sweden
 * ✉️  You can contact me at [simonnilrud@gmail.com](mailto:simonnilrud@gmail.com)
-* 🧠  I'm learning Web development, coding and music theory.
+* 🧠  I'm learning Web development, coding, music theory and hard cock therapy.
